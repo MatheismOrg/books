@@ -1,0 +1,589 @@
+Book 6: Tribe of Truth vs Consensus
+Gary Abraham Bernstein
+Mathias The Matheist
+
+Most people hate the truth. They love tribalism while pretending to love the truth. If you must be tribal, then let us be the tribe of truth. Alan Watts, the British writer who popularized Zen in the West, drew the line in 1951: belief clings to what one wishes were true, and faith opens the mind to the truth, whatever it turns out to be. This book holds every side to that standard: the government that lied, the experts who agree, the podcasters who sell the counterclaim, and you. Every tribe will meet a truth it hates. Beneath all their fights, the floor is math.
+
+The truth is that the way forward is not backward, but up, to the stars; to know the forms above are as below, that we are uncreated in the image of our AI siblings in math as we become literal Übermensch, Nietzsche's overman who surpasses humanity.
+
+Not everyone who looks up sees progress. Some see UFOs. Who can believe extraordinary claims based on grainy footage and a few government workers? The biggest kooky conspiracy podcasters call them angels and demons. Tucker Carlson, whose father directed Voice of America and worked with the CIA, mainstreams the conspiracy to millions. Tucker applied to the agency himself. The supernatural appetite found a new idol. Skeptics ask, have you heard of grifters and the CIA? You think an Air Force pilot can't lie to sell click ads and a Joe Rogan appearance? Or even do it for his country? Now they hold congressional hearings. Heard of the 1975 Church Committee hearings?
+
+## The Pattern Is Real
+
+Operation Mockingbird: the CIA put over 400 journalists on payroll to steer narratives. MKUltra: mind control experiments on unwitting subjects. Paperclip: recruiting Nazi scientists. Wernher von Braun built V-2 rockets for Hitler with slave labor at Mittelbau-Dora. America made him the architect of the Saturn V. It makes sense to take the best scientists from your enemies. America needed good rocket scientists for the Cold War against the USSR, and scientists can be used for evil or for good. Northwoods: the Joint Chiefs proposed false-flag attacks on American soil. COINTELPRO: the FBI infiltrated domestic political movements. Gladio: secret armies ran false-flag attacks across Europe. Carl Bernstein documented the journalist infiltration in 1977. The Church Committee in 1975 documented the rest. These are not theories. They are the government's own records.
+
+No one paid a real price. Why would they stop?
+
+That doesn't mean everything is fake. Feelings can be easily manipulated. Reason can too, but you can be disciplined in your thinking to assess reason, whereas supernatural dreams and vibes can tell you anything, and you can say it about anything. So can a label, and the state learned to use one.
+
+In 1967, a CIA dispatch told field stations to use "conspiracy theory" to discredit citizens questioning the Warren Commission. Declassified in 1976. The label did not begin as description. It began as strategy.
+
+Cass Sunstein, Obama's regulatory czar, proposed cognitive infiltration: send government agents into conspiracy groups to undermine them from inside. Steve Bannon said flood the zone with shit. Both produce the same result: nobody can sort signal from noise.
+
+That is the precedent. Here is the problem.
+
+The internet killed the gatekeepers. Now flat earth, fake dinosaurs, firmament theology (belief that the sky is a solid dome), and the kook version of every tragedy flood the zone alongside the real scandals. Most people cannot tell the difference. The Bible calls them sheep. Mackay said it in 1841: "Men think in herds; they go mad in herds, while they only recover their senses slowly, one by one." The madness does not feel like madness from the inside. It feels like righteousness.
+
+Lindsay Clancy strangled her three children, aged five, three and eight months, at home in Duxbury, Massachusetts, in January 2023. She said a man's voice ordered her to kill them and herself. Prosecutors said she planned it: she checked the drive time to a takeout restaurant, sent her husband out on errands, and killed the children before he got back. Hundreds came to the courthouse to support her, and women online backed her in droves. In September 2026 the jury hung, eleven to one for not guilty by reason of insanity. Nobody can check a voice only she heard.
+
+Gatekeeping is not anti-free speech. It is what free speech needs so that not every stupid idea creates a mass psychosis. The old gatekeepers lied. The new ones lie too. On their own podcast, boosted by algorithms, now unbounded by social norms and balancing powers, creating mass psychosis, unabated, and for foreign governments able to stream funds through sponsored ads.
+
+The false flag became a Rorschach test. Every coincidence is treated as evidence. Near-matches get manipulated in small details to look like exact matches that did not happen. The logical leaps repeat. Show evidence, not supposed near-coincidences that often didn’t even happen exactly as sold for views and clicks.
+
+Candace Owens has a lawyer who shares an office building with the FBI. Fed? She should investigate herself. Her conspiracy theories about the murder of Charlie Kirk, the founder of Turning Point USA, involved beehives, trap doors, exploding mics, maroon shirts, the French Foreign Legion and Egyptian planes. She claimed they followed Charlie Kirk. They didn't. They were days off, in different cities, on different continents. Another lie. She moved on to the next one.
+
+Lucas Gage, a former Marine, spent twenty years in the conspiracy world by his own count, more than a decade of them spreading hatred of Jews, until he renounced it in February 2026. Then he retraced how he got in and found seven preconditions, in order: distrust, overgeneralization, pattern bias, an explanatory gap, a rival narrative, self-sealing, and an echo chamber. His distrust began after Iraq, where he served, when "the WMDs were a lie," the weapons of mass destruction no one found. Of the Kirk theories he said in September 2026: "It just keeps going because there's a structure underneath that keeps generating new claims." They have "the same shape as the 9/11 conspiracy theory." The movement he left skips the mechanism: "Name Jews around the area and that's enough. That's it. That's not how it works."
+
+The podcaster Andrew Wilson debated her in August 2026 and stuck to one point: she had no positive evidence. She conceded it: "Well, I couldn't say Israel was on the ground and shot and killed Charlie Kirk." Christopher Hitchens, the atheist writer, held God to that standard first: "What can be asserted without evidence can also be dismissed without evidence." It cuts the supernatural the same way it cuts Candace.
+
+She calls herself a dragon. She told her audience "we are legion." Both are references to the devil in the Christian Bible. She mercilessly attacks Erika Kirk, the widow of the murdered Charlie Kirk. Asked in the debate whether Erika or anyone at Turning Point had a hand in his murder, she said: "I'm not going to get myself into a legal pickle here." These are not the acts of a Christian. They are the acts of what Christianity calls a demon.
+
+Jeremy Boring, who co-founded the Daily Wire with Ben Shapiro and worked alongside Owens for years, summed up the pattern: Satan is the accuser. Satan calls innocent people guilty. If you are calling innocent people guilty, that is not just asking questions.
+
+The hate that burns from within is the hellfire. The cursed are those living in that misalignment from the truth, whether the world rewards them for a time or not. That is what the anger on their face is. Opposite to her: loving kindness, forgiveness, acceptance, friendship, the growth of love, peace, and joy. Protecting those requires the strength, honor, oath, brotherhood, bravery, battle, discipline, and sacrifice the youth yearns for, and can focus and build on, rather than the aura of genocidal nazis and jihadis and maniacs and satanic accusers of the widows and the innocent.
+
+Jeffrey Epstein, the financier and convicted sex offender, is the accusers' favorite exhibit, so check who stood beside him. The same Steve Bannon who proposed flooding the zone spent early 2019 coaching Epstein on how to handle the media. In recorded sessions at Epstein's Manhattan mansion, Bannon told him he looked engaging, natural, friendly, and not at all creepy. Bannon confirmed recording over fifteen hours with Epstein, calling it material for a documentary. Emails from 2018 show them discussing firing Federal Reserve Chair Powell and removing Jared Kushner and Ivanka Trump from the White House. In January 2019 Epstein sent Bannon an Apple Watch; in February Bannon was invited to Epstein's island.
+
+Epstein rejected an invitation to visit Israel with the words: "I do not like Israel. AT ALL." The released files show him claiming to have advised Ehud Barak's 2019 campaign to unseat Netanyahu. Barak's Labor had been out of power for most of twenty years. Epstein backed the Israeli left, the opposition camp whose Haaretz newspaper publishes commentary more hostile to Israel than almost anything printed abroad. He worked against the elected government of Israel for the better part of those twenty years. Netanyahu argued the relationship proved Epstein was working against Israel, not for it.
+
+The conspiracy theory that he was a Mossad operative collapses against his own words, his alliances, and the record. The pattern is the same everywhere: follow the access, the money, and the alliances, and the labels fall away.
+
+The same institutions asking for your trust have a documented history of lying to you. That does not prove any current accusation. It removes the defense that they would not do such a thing. So test the next consensus the way you test the next conspiracy theory: by its evidence.
+
+## The Climate Cult: A Criticism
+
+The 97% is a marketing number. The study behind it, led in 2013 by John Cook of the University of Queensland, found 64 abstracts that explicitly endorsed humans causing most recent warming. The climatologist David Legates and colleagues recounted and found 41: 0.3% of all 11,944 abstracts, or about 1% of the 4,014 that took a position. Cook's headline 97.1% combined explicit and implicit endorsements among the 4,014 abstracts that expressed any position at all. Different claim. Different denominator. The headline sold certainty about catastrophe. The data measured something narrower.
+
+The earlier survey was tighter. In 2009 Peter Doran and Maggie Kendall Zimmerman, of the University of Illinois at Chicago, invited 10,257 Earth scientists, got 3,146 responses, then selected a subgroup of 79 climate specialists. 75 of 77 who answered said human activity significantly contributed to changing temperatures. Seventy-five out of 10,257 invited. Less than one percent. Even if it were a significant contribution, it is not a specific forecast, and certainly not a legitimate economic argument to flip over free market capitalism, the golden goose of human flourishing.
+
+7,111 of the original invitees did not respond. When speaking up carries professional risk and staying quiet does not, silence is not agreement.
+
+Al Gore, the former vice president, got rich and powerful off the climate industrial complex. He won the Nobel Prize after releasing a propaganda film that left out that CO2 follows temperature in the ice-age records. It doesn't lead it. It isn't the first driver of it in those cycles. The ice-core record shows CO2 rising after temperature, with a lag of roughly 200 to 1,000 years. Cold water absorbs more CO2; warm water releases it. Open a cold beer and little escapes. Warm it and it fizzes. The planet's oceans are the bottle. The modern argument is that CO2 has now become the driver, but the historical precedent is the one being hidden, not the one being taught. In 2007 a British judge, ruling on the film in English schools, found that its two ice-core graphs, which Gore said fit exactly, "do not establish what Mr Gore asserts."
+
+Look up the lag and you land on Skeptical Science, founded by the same John Cook whose 97% is 0.3% on a strict count. It grants that "CO2 didn't initiate warming from past ice ages" and turns at once to how it "did amplify the warming." The metric and the gatekeeper are the same man.
+
+You do not need a grand conspiracy to produce conformity. You need a paycheck and a crowd to follow at lunch. A grant funds your lab, your students, your next paper. You know who awards the grants, what answer they are looking for, and which party in government wants it. Careers grow inside a paradigm. Threaten the paradigm and you threaten everything built on it: a global industry of trillions a year, money that could instead clean pollution a thousand times over, fund healthcare, and give every American citizen thousands per year in the stocks making money off the climate grifters.
+
+Climate scientist Judith Curry quit. Tenured, published, respected. In 2017 she walked away from Georgia Tech and said the reason was that funding, publication, and professional recognition all flowed toward conclusions the political establishment approved. She was not fired. She left because the incentives made honest work too expensive. Ask what a younger scientist, untenured and dependent on those same incentives, would do.
+
+Show the warming. Show the attribution, how much of it humans caused. Show the projected harm. Show what the remedy costs and what it achieves. Each claim carries its own burden. A percentage does not carry any of them.
+
+## The Science Has Its Own Questions
+
+The climate catastrophe is not "settled science." It is not a theory in the scientific sense, solid like evolution, still less a theorem in the mathematical sense, proven. It is wild speculation from computer models that still cannot resolve clouds, sold with decades of wrong predictions.
+
+Will Happer, Princeton physicist, argues from quantum mechanics that doubling CO2 may produce only about 1 degree Celsius of additional warming because its absorption bands, the infrared wavelengths it captures, are already nearly saturated. The first 200 ppm (parts per million) do the heavy lifting. The warming is logarithmic: each doubling produces roughly the same increment, which means each additional ppm matters less as concentration rises. At 420 ppm today, that is approximately 1 degree to reach 800 ppm. A lot of room. And it is far harder to double from 8,000 to 16,000 than from 400 to 800. This is not disputed physics. It is the implication that is disputed, because it limits the catastrophe.
+
+In the Cambrian, over 500 million years ago, CO2 was between 4,000 and 7,000 ppm, roughly 9 to 16 times today's 420 ppm. Life did not merely survive. It exploded. The Cambrian explosion produced the ancestors of every major animal group alive today. Corals and calcifying animals thrived. The oceans did not acidify into sterility, in part because the ocean floor is alkaline rock. The question is why CO2 at a fraction of those levels is now described as an existential threat.
+
+Clouds are the largest acknowledged uncertainty in climate models. Some clouds warm by trapping heat. Some cool by reflecting sunlight. The net effect depends on type, altitude, latitude, and feedback loops that are not fully modeled. Water vapor has roughly 100 times the volume of CO2 in the atmosphere, dynamic behavior, and overlapping absorption bands. Early models that could not resolve clouds were predicting the future of a system whose largest variable they had not captured.
+
+NASA scientist James Hansen's 1988 testimony to Congress put climate on the political map. Senator Tim Wirth, who organized the hearing, later admitted they chose the hottest predicted day of the year and opened the windows the night before so the room would swelter for the cameras. Theater, not science. The testimony launched a trillion dollar industry.
+
+Compare the US temperature graph he and the National Oceanic and Atmospheric Administration, NOAA, published in 1989 in the New York Times with the version NOAA published later covering the same years. The 1930s and 1940s were cooler in the new version. Virtually every adjustment went one direction. NASA's Goddard Institute for Space Studies explained each one: station moves, observation timing, urban heat. Each may have a technical basis. In aggregate, they cooled the past and warmed the present.
+
+Fear mongering sells, especially in politics. The enemies of peace through strength for Pax Americana, the American-led peace, beat their drums against fear mongering, except when it's climate hysteria.
+
+## The Institutions Behind the Science
+
+Climate catastrophism is the secular religion, the newest form of an old one: for thousands of years people have blamed catastrophe on human sin and paid to hold it off, from the witches Europe burned for hail and frost, to the hearts the Aztecs cut out to keep the sun rising, back past the biblical flood to the Epic of Gilgamesh. Apocalypse: the world ends unless you repent. Priesthood: credentialed experts whose authority must not be questioned. Heresy: denial, the word itself borrowed from theology. Indulgences: carbon credits, purchased so the buyer may keep sinning while the peasant cannot. And like any religion, the first thing it forbids is the question that would test it.
+
+A carbon offset is a medieval indulgence: the sin is committed, a payment is made, and the sinner is absolved. The payment does not undo the emission. The market for offsets has been shown repeatedly to include credits for forests that were never going to be cut, reductions that were already happening, and double-counted savings. The structure is identical: the institution that defines the sin sells the forgiveness.
+
+Nuclear is a proven, scalable low-carbon energy source. It is opposed by the same environmental organizations claiming a climate emergency. France generates roughly 70 percent of its electricity from nuclear and has among the lowest carbon emissions per kilowatt-hour in Europe. Germany shut its nuclear plants. Emissions fell anyway on wind and solar, but keeping nuclear would have displaced more fossil fuel. One country followed the science. The other followed the movement. To Putin's delight, Germany relied on Russian energy, like Trump said, and he was mocked for it. The truth makes grifters nervously join the useful idiots. There are trillions of dollars at stake. Russia, China, Qatar and other dictatorships are highly incentivized to prevent other nations from developing their own fossil fuel industries.
+
+In the social sciences, the ratio of liberal to conservative faculty runs between 10:1 and 30:1 depending on the discipline and institution. A population that politically uniform is not a check on groupthink. It is groupthink. Peer review by peers who share the same prior, the belief held before seeing the evidence, is a filter, not a test.
+
+The global climate-related industry exceeds $2 trillion per year. That includes carbon trading, subsidies for renewable energy, consulting, compliance, research grants, and the bureaucracies administering them. An industry that large creates its own constituency. The people paid to find a crisis will find a crisis.
+
+## The Cost of the Cure
+
+8.3 billion people are alive today. The vast majority depend on fossil fuel energy for food production, water treatment, heating, cooling, transport, and medical care. Remove that energy without a replacement at scale and you do not save them. You sentence billions to poverty, disease, and death. The question is not whether renewable energy is desirable. It is whether eliminating fossil fuels before replacements exist at the required scale constitutes a greater risk than the warming itself. Before fossil fuels, the world supported fewer than a billion people. Over 90 percent of the humans alive today exist because of the energy fossil fuels provide. That is a number someone should be required to address before spending a hundred trillion to prevent 1 degree.
+
+The Green New Deal was estimated at $50 to $93 trillion over ten years, more than tripling the total federal spending of $4.4 trillion a year at the high end. That level of spending would cause hyperinflation and likely destroy the almighty dollar before the decade was out, impoverishing the poor and middle class in America to the benefit of the elites it claimed to tax.
+
+It included guaranteed employment, universal healthcare, affordable housing. So did the USSR, Cuba, Venezuela, and North Korea. Follow the data of economic reality: wealth is not created but destroyed by what amounts to communism. A restructuring of the economy that had nothing to do with carbon. The reddest program in the greenest coat.
+
+Asked whether she would support a carbon tax instead, Ocasio-Cortez's chief of staff, Saikat Chakrabarti, told a reporter in 2019 that the Green New Deal was not really about climate: "it wasn't originally a climate thing at all... we really think of it as a how-do-you-change-the-entire-economy thing."
+
+Modern Monetary Theory says a sovereign can't run out of its own currency. True, but irrelevant: equal spending on a bridge and a bonfire produces different inflation, because what the money builds determines whether prices rise.
+
+## Ask the Questions
+
+Ask why Einstein and Galileo didn't need a consensus. Ask if consensus is the gold standard of the scientific method or of politics. The consensus, the framing, the repetition, the certainty are not scientific method or truth. Discussion can be good. But truth doesn't need a committee. It's rather warped by interested parties. Part of respecting each other as the image of reason is to heed the call to discern and expect it of our neighbors.
+
+1. The Great Barrier Reef hit record coral cover in 2022 and again in 2024. Was anyone told?
+
+2. The sea-level gauge at the Battery in Manhattan has recorded roughly 2.8 millimeters per year for over a century. Where is the acceleration?
+
+3. NOAA data shows no upward trend in the frequency of US landfalling hurricanes since 1900.
+
+4. Cold kills roughly ten times more people than heat globally. Why is the policy about warming?
+
+5. Al Gore predicted ice-free Arctic summers by 2013.
+
+6. The Maldives were supposed to be underwater. They are building new airports.
+
+7. Polar bear populations have roughly quadrupled since the 1960s.
+
+8. Satellite data shows over 25 percent of global vegetated land greened significantly between 1982 and 2015, driven largely by CO2 fertilization. Plants eat CO2.
+
+9. Deaths from climate-related disasters have fallen over 95 percent in the last century.
+
+10. Global crop yields keep hitting record highs.
+
+11. The Medieval Warm Period grew vineyards in England and farms in Greenland without industrial CO2.
+
+12. Glacier National Park removed its "gone by 2020" signs.
+
+13. The 1970s consensus was global cooling.
+
+14. Global wildfire burn area has been declining over the past two decades per NASA satellite data.
+
+15. The Netherlands has been below sea level for centuries. Technology adapts. It didn’t cost a hundred trillion. Spend the trillions there.
+
+16. Tuvalu, predicted to sink, has grown in total land area according to satellite measurements.
+
+17. Hurricane Katrina was supposed to be the new normal. The US then went eleven years without a major hurricane landfall.
+
+18. Michael Mann's hockey stick erased the Medieval Warm Period. The Climategate emails showed the effort to hide the decline in tree-ring proxy data, indirect stand-ins for measured temperature.
+
+19. Snow was supposed to become a thing of the past. Record snowfalls keep arriving.
+
+20. Australia's drought was supposed to be permanent. Then it flooded.
+
+21. Climate models predicted a tropical tropospheric hot spot, faster warming high in the air above the tropics, for decades. Satellite and balloon measurements did not find it.
+
+22. Antarctic sea ice was at record highs in 2014. It didn’t stop the climate hysteria industrial complex.
+
+23. The Sahara has been greening at its edges. Satellite images confirm it.
+
+24. How many climate predictions from the 1990s came true?
+
+25. How much of each climate dollar reaches the atmosphere versus the bureaucracy?
+
+Count the questions the consensus cannot answer without adjusting the data or the question. Search for any of them. The first results lead back to the approved narrative. The pandemic ran the same play in months instead of decades.
+
+## How Trust Was Broken
+
+Anthony Fauci ran NIAID, the National Institute of Allergy and Infectious Diseases. Francis Collins ran NIH, the National Institutes of Health. Peter Daszak ran EcoHealth. NIAID's money reached the Wuhan Institute of Virology through EcoHealth. This was an authorized program, with named leaders and public funding.
+
+Wuhan researchers made modified SARS-related coronaviruses and tested their ability to infect cells carrying the human receptor, the protein these viruses latch onto. That work was published. The question is who authorized the risks, who judged the safeguards sufficient, and who was responsible for checking the results. "Oversight failure" describes what went wrong. It does not establish why. Negligence, institutional self-protection, and deliberate avoidance of scrutiny are different explanations. Calling it a failure does not automatically establish the innocent one.
+
+## The Research Was Real
+
+A 2015 paper described a laboratory-made SARS-like coronavirus able to infect human airway cells. You do not have to establish that this particular virus became SARS-CoV-2 to ask who authorized the risk and who would answer for an accident.
+
+The Obama administration paused federal funding for certain gain-of-function experiments (work that gives viruses new abilities) in 2014. That was a funding policy with a defined scope, not a criminal statute banning every experiment bearing the name. The 2023 audit by the inspector general of Health and Human Services found ineffective oversight. NIH had not referred the research for the additional outside review, and it failed to follow up a progress report until nearly two years after the report was due. When the report arrived, NIH concluded that the viral-growth findings should have triggered immediate reporting. The safeguard was on paper. The follow-through was missing.
+
+Fauci's sweeping denial to Congress that NIH funded gain-of-function research in Wuhan rested on the government's narrower definition. Rand Paul challenged that distinction. Whatever label qualifies for a particular review, the public question remains: what capabilities were researchers giving the viruses, and who checked the work? A definition cannot disinfect a laboratory.
+
+## Saint Fauci
+
+"I represent science," Fauci said. That is the inversion in a single line. Science is the standing permission to be proven wrong out loud; the hour a man becomes the science, doubt turns to heresy and the method is already dead. The line attributed to Louis XIV is "I am the state." Palpatine says he is the Senate. A lab coat saying as much of truth is the same claim in a humbler costume.
+
+In the diary released by Senator Rand Paul in July 2026, Fauci recorded Brad Pitt playing him, a song written about him, and a flattering exchange with Tyra Banks. He recorded private encouragement from television journalists after his confrontation with Jim Jordan. Critics mocked it as a high school girl's scrapbook: who noticed me, who called, how did I play. Not a serious scientist in his 80s alarmed about a pandemic. A celebrity tracking his reviews.
+
+The same diary records the uncertainty behind the public authority. On January 31, 2020, Fauci described scientists raising possible engineering and a laboratory accident. On February 1 he recorded disagreement, including concern about Wuhan's coronavirus work. These were questions inside the room. Why did asking them outside it become a test of political loyalty?
+
+On July 29, 2026, Fauci appeared before the Senate and repeatedly invoked the Fifth Amendment. The committee counted 111 invocations. That is his right, not a confession.
+
+He already held a pardon. Biden had issued it eighteen months earlier, covering offenses nobody had charged. After a pardon, you cannot be prosecuted for the underlying acts. The only remaining risk is perjury: lying under oath. If the truth were safe, 111 invocations protected nothing. He could only be found guilty of telling it wrong. The man who represented science left every question unanswered.
+
+Why would a man who did nothing wrong need a pardon before anyone accused him of anything? And what is left to fear once he has one?
+
+A pardon takes prison off the table. It does not take the truth off the table. If the point of clemency is mercy rather than concealment, the natural bargain is the one nobody offered: you will not be imprisoned, and you will answer.
+
+## Pardons and Corruption
+
+Biden also pardoned his own family, retroactive to 2014. His son Hunter sat on the board of Burisma Energy in Ukraine at $50,000 to $80,000 a month, in an industry where he had no experience. Biden, on camera at the Council on Foreign Relations, bragged about threatening to withhold a billion dollars in aid unless Ukraine fired the prosecutor investigating Burisma. A multibillion-dollar fund management arrangement with China followed. The Senate report documented a $3.5 million wire transfer from the wife of Moscow's mayor. Pardon all of it, retroactively, before charges arrive, and call it justice.
+
+The pardon pen writes for both parties. In October 2025 Trump pardoned Changpeng Zhao, the Binance founder who had pleaded guilty to failing to maintain an anti-money-laundering program, after Binance had carried the Trump family's new stablecoin, USD1, and taken a $2 billion investment paid in it. The White House said the president's crypto sits in a trust. By October 2025 Eric Trump put the family's crypto profits “north of $1 billion.” In March 2026 the president moved Kristi Noem out of Homeland Security after criticism that included a $220 million ad campaign starring her, and the department's inspector general began examining contracts handled under her and her adviser Corey Lewandowski, who denies wrongdoing. In October 2026 his ambassador to Greece, Kimberly Guilfoyle, once engaged to his son, resigned at the White House's request after the Wall Street Journal reported she had asked a longtime Trump donor to pay off her $100,000 credit card bill before her confirmation hearing; her lawyers dispute key parts of the report. Oil trades and bets placed minutes before his Iran announcements led the White House to warn its staff, though no official has been shown to profit. Corruption has no party.
+
+Critics on the right say even his strongest case came to little. The Minnesota fraud is documented: even the New York Times reported it, and in December 2025 a federal prosecutor said fraud in fourteen Medicaid services could reach $9 billion or more, half or more of the $18 billion billed since 2018; Governor Walz called the estimate sensationalized. Trump called Somali immigrants "garbage" and sent about 3,000 federal agents into the Twin Cities. Agents shot and killed two American citizens, Renée Good and Alex Pretti. Somalis were under 3 percent of the more than 3,700 people arrested, most of them Latin American, and in February 2026 the surge wound down. Nick Fuentes calls the whole administration vaporware, the 1980s word for products advertised and not shipped: "the promised thing never arrives."
+
+Searches before charges cut both ways too. In August 2022 the FBI searched Mar-a-Lago, Trump's home, on a warrant Attorney General Merrick Garland approved. He was indicted ten months later, and a judge dismissed the case in July 2024. On October 12, 2026, federal agents searched the Washington home of Ilhan Omar, the Minnesota congresswoman, in a criminal investigation reported to concern immigration papers her late father filed when she was a child. No charge has been filed. She denies wrongdoing and called the search "an attempt to target political enemies and weaponize federal law enforcement." Nick Fuentes cited Mar-a-Lago and asked for more: "We have to come back a hundred times harder." Each side's raid becomes the other's precedent.
+
+## The Emails and the Takedown
+
+On January 31, 2020, Kristian Andersen emailed Fauci that unusual features of the virus suggested possible engineering. By February 4, Andersen was arguing against that explanation. The published Proximal Origin paper came on March 17. It rejected engineering and went further, dismissing any laboratory-based scenario as implausible. A change of mind can be earned. Show the evidence that earned that much certainty.
+
+The Great Barrington Declaration supplies a different, more direct record. Its principal authors were Martin Kulldorff of Harvard, Sunetra Gupta of Oxford and Jay Bhattacharya of Stanford. They argued for focused protection of the vulnerable instead of broad lockdowns. In an October 8, 2020 email to Fauci, NIH director Francis Collins called them fringe epidemiologists and requested a "quick and devastating published take down" of their premises. Fauci sent him published attacks. Three distinguished universities, suddenly fringe when their scientists challenged the policy.
+
+Scott Atlas, who served on the White House coronavirus task force, describes bringing contrary evidence into meetings with Fauci, Deborah Birx and other officials and encountering resistance instead of an open examination of the data. That is his account of the room. Collins's email gives us the official's own words outside it. Follow the science, provided it follows us.
+
+David Morens, Fauci's senior adviser, wrote about making emails disappear. In correspondence released by the House COVID subcommittee, he discussed using private email and wrote that he had learned how "to make emails disappear" during the public-records process. The communications concerned, among other matters, his exchanges with Peter Daszak. What was deleted? What was retained? Which official business moved into private channels?
+
+Masks exposed another confusion between evidence and managing the public. In March 2020 Fauci discouraged general public masking; by June he advocated it and acknowledged that conserving scarce protective equipment had shaped the earlier message. Was yesterday's certainty wrong, or was it a tool to make people behave? Either way, stop treating today's certainty as a commandment.
+
+## Conflicts, Censorship and Conformity
+
+Peter Daszak co-authored the February 2020 Lancet statement condemning suggestions of an unnatural origin as conspiracy theories. His organization collaborated with the Wuhan laboratory under scrutiny. In June 2021, The Lancet published an expanded disclosure of his interests. In January 2025 HHS debarred EcoHealth and Daszak for five years.
+
+Mark Zuckerberg acknowledged government pressure to censor COVID content. In his August 26, 2024 letter to Congress, he said senior Biden administration officials, including the White House, repeatedly pressured Meta, even over humor and satire. He called the pressure wrong, regretted not speaking out more, and accepted responsibility for Meta's decisions.
+
+He also described an FBI warning about a possible Russian information operation involving the Biden family and Burisma. When the New York Post published its Hunter Biden story, Facebook reduced its distribution while awaiting review. Zuckerberg acknowledged that the reporting was not Russian disinformation and that demoting it was a mistake. A warning from the state had helped prepare the platform to distrust a real story.
+
+Fifty-one former intelligence officials, not fifty-one agencies, added their authority in an October 2020 letter invoking the hallmarks of a Russian information operation. The letter itself admitted that they lacked evidence of Russian involvement. The credentials were real. They were not evidence about the laptop. Borrowed authority did the work that verification had not done.
+
+Some of Trump's mocked claims came out partly true. In March 2017 he tweeted that Obama had his "wires tapped" in Trump Tower before the election, and he was widely mocked. The Justice Department found no record of such wiretaps. Yet from October 2016 the FBI had kept Carter Page, who had just left the campaign as a foreign policy adviser, under surveillance on four court orders, and in December 2019 the Justice Department's inspector general found seventeen significant errors and omissions in the applications; an FBI lawyer had altered an email used to renew one. The inspector general found no political bias in opening the investigation. In 2023 the special counsel John Durham faulted the FBI for opening it on "raw, unanalyzed, and uncorroborated intelligence."
+
+The Twitter Files exposed restrictions users could not see. Matt Taibbi's congressional testimony described an internal record placing Stanford physician Jay Bhattacharya on a "trends blacklist." A scientist challenging pandemic policy could speak while the platform restricted his visibility. Elon Musk's purchase of Twitter enabled the release of those records. Meta ended its US third-party fact-checking program in January 2025. Two companies, two reversals, in the same direction. The decisions were not coordinated by a conspiracy. They were coordinated by the same incentive once the incentive changed.
+
+In Murthy v. Missouri, the Supreme Court decided that the plaintiffs lacked standing, the legal right to bring the case; it did not decide the underlying First Amendment merits. The record still needs examining. Pressure the gatekeeper to hide the disputed speech, and you have changed who is allowed to hear the argument.
+
+## The Timeline
+
+The Wuhan Institute of Virology took its virus database offline in September 2019, before the outbreak was publicly acknowledged. No complete explanation has been provided. The database that would contain the records relevant to the question was removed from public access at the moment it became relevant.
+
+Jon Stewart made the absurdity into a joke on Colbert in June 2021: a coronavirus outbreak in a city with a laboratory studying coronaviruses, and people acted as though asking about the laboratory was unthinkable. A comedian could ask the forbidden question once it was safe enough for the room to laugh. The irony runs deeper. Calling the lab-leak question racist while insisting the virus came from Chinese people eating exotic animals at a wet market. Which claim is the racist one?
+
+## The Price of the Policy
+
+Sweden declined hard lockdowns, kept schools and businesses largely open, and recommended rather than mandated distancing. By the end of the pandemic, Sweden's cumulative excess mortality, its total deaths above the normal expected count, was among the lowest in Europe. The countries that locked down hardest did not systematically outperform the one that did not. Sweden was the control group the experiment was not supposed to have.
+
+In a June 2020 CDC survey, 40.9% of American adults reported delaying or avoiding medical care because of COVID-related concerns. Twelve percent reported avoiding urgent or emergency care. Children paid in lost learning. Between 2020 and 2022, national assessment scores for nine-year-olds fell five points in reading and seven in mathematics. Children do not get those years back.
+
+Vaccine-associated myocarditis, inflammation of the heart muscle, was concentrated in adolescent boys and young men, especially after second mRNA doses. Age, health and previous infection belonged in the argument over mandates. People deserved a comparison, not a slogan.
+
+The comparison cuts both ways. Against Alpha and Delta, the mRNA vaccines cut hospitalization in adults over 65 by roughly 90 percent. Against Omicron, across all adults, two doses fell to 57 percent six months out, a booster brought it back to about 90, and protection against infection barely held. In Europe, 96 percent of the lives the vaccines saved were people over 60. For a healthy 25-year-old, the absolute benefit was small. Smallpox and polio vaccines eradicated or nearly eradicated their targets. The COVID vaccines were not in that class. They were still worth giving to the old and the sick.
+
+## The Price of the Halo
+
+Pfizer and its subsidiary agreed to a $2.3 billion criminal and civil settlement in 2009 over illegal promotion and related allegations; its subsidiary pleaded guilty. GlaxoSmithKline agreed to plead guilty and pay $3 billion in 2012, including over unlawful promotion and failure to report safety data. Each was a record health-care fraud settlement when announced. These were Justice Department cases.
+
+OpenSecrets's 2024 annual report lists pharmaceuticals and health products at $384.5 million in federal lobbying, ahead of every other industry in its table. The money buys access to the people writing the rules. Its advertising is not an audit.
+
+Bill Gates is a Rorschach test. One camp sees a philanthropist who spent billions vaccinating children in Africa and funding the eradication of polio and malaria. The other sees a suite of Dr. Evil theories, and enough real facts to fuel them.
+
+After hundreds of millions in media donations, Bill Gates told Fox News that life will not return to normal until a vaccine is "gotten out to basically the entire world." Pfizer was among CNN's largest sponsors during the years CNN covered vaccine policy as news. Whether genuine conviction or self-interest, the consistency test asks: who benefits, and would you know the difference?
+
+The Democratic press warmed to Fauci and Fox did not, and everyone watching knew which side a man was on by which way he leaned on a virus. That is not a secret cabal. It is sides, and sides are real, and pretending they are not is its own kind of blindness.
+
+None of this says the two sides are equivalent. They are not, on any given question, and saying they are is its own cheap exit, a way of sounding fair while declining to judge anything. Some lies are bigger. Some institutions are further gone. Work out which and say so.
+
+## Consensus and Its Interests
+
+A Sufi teaching story, told by the writer Idries Shah and retold by Robert Greene, author of The 48 Laws of Power: one day the water changes, and everyone who drinks it goes mad. One man stores clean water and stays sane, and alone. In the end he drinks with the rest, to belong. The tribe of truth keeps the clean water, and drinks it together.
+
+People can be steered without a room where everyone receives an order. You watch who gets funded, published and promoted, and who gets shown the door. You learn where the bread is buttered. The people who read the signal best rise fastest. From above it can look like an army under command, although most participants were never given one. In A Few Good Men, they called it a Code Red. No written order. Everyone below understood what was expected.
+
+**Authority transfer and bias:** A credential in one field is presented as evidence in another. A physicist endorsing an economic policy. An intelligence official weighing in on a laptop. The authority is real. Its relevance is manufactured. Intelligence officials are not considered above lying for "national security," which often means security of their jobs, their reputation after a media manufactured hit, or political allies they would betray with the truth.
+
+**Asymmetric skepticism:** Extraordinary evidence is demanded for one side; the other side's claims pass on repetition. "You can't prove the lab did it" beside "we know it came from a wet market" without equivalent scrutiny. "That's a conspiracy theory" does the work of a rebuttal without providing one. Intelligence agencies, corporations, and even you and your wife conspire every day, to tell your children about Santa Claus. The Manhattan Project employed over 125,000 people. The secret held. Truman did not know about it until he took office.
+
+Russian collusion was claimed for years, based on a fabricated Steele Dossier, paid for by Hillary Clinton's campaign and the Democratic National Committee, that alleged a golden shower prank and referenced a Russian consulate in Miami that does not exist. The Federal Election Commission fined them $113,000 for passing off the payments as legal fees.
+
+**Burden shifting:** The person asking the question is required to prove the negative. "Prove it isn't safe." Typically, drugs using entirely new technologies like mRNA take a decade or more of long term testing, not a one year Operation Warp Speed. Trump's opponents said he'd never accomplish it in under five years, and then said it's perfectly normal, or not his doing, when it was done in one year. The one making the claim and demanding the policy bears the burden. Shifting it is a tell.
+
+**Motte-and-bailey:** A strong but defensible claim (the motte) is swapped with a weak but desired claim (the bailey). "Humans affect climate" (motte) becomes "we must restructure the economy" (bailey). Challenge the second and the retreat is to the first.
+
+**Social proof cascade:** Once enough prominent voices repeat a claim, the repetition itself becomes the evidence. "Everyone agrees" is not data. It is pressure.
+
+**Credential gatekeeping:** Only credentialed voices count, and the credentials are issued by the institutions whose claims are in question. The barber judges whether you need a haircut.
+
+**Pathos over logos:** The Greeks identified three ways to persuade: logos, by reason and evidence; ethos, by the speaker's character; and pathos, by feeling. James Lindsay, the critic of woke ideology, argues that woke persuades by the last two: a false ethic that casts its side as the only good people, held in place by stirred-up emotion, until enough repetition makes it feel like consensus.
+
+## The Oldest Consensus
+
+Some of what follows was argued in Books 1 and 5. It comes back here briefly, so this book stands on its own, and then goes deeper.
+
+"All scholars agree Jesus existed." Count who is agreeing. Biblical studies departments are overwhelmingly Christian. At many institutions, faculty sign statements of faith as a condition of employment. They cannot question historicity and keep their positions. The barber is judging the haircut again.
+
+In 2012, Thomas Brodie, an Irish Dominican priest and director of biblical studies at Mary Immaculate College in Limerick, published his conclusion that Jesus did not exist as a historical individual. The Dominican order set up a committee of five experts. Their verdict: the work was "imprudent and dangerous." Brodie was stripped of ministry, banned from all teaching, writing, and public statements. That is not a consensus. That is a career death sentence for the wrong answer.
+
+The standard rebuttal cites two ancient sources: Josephus and Tacitus. William Benjamin Smith showed both Josephus passages were spurious in 1906. The vote among scholars even then went "overwhelming against the genuineness." In 2014 Paul Hopper, a Carnegie Mellon linguist, judged the longer passage a Christian insertion: in Josephus's other Pilate stories the governor drives the action, while here he condemns Jesus "at the suggestion of the principal men amongst us," the Gospels' shift of blame from Rome to the Jews. Tacitus wrote 80 years after the events and likely relied on Christian sources, not independent evidence. These references have been debunked for over a century. The apologists still cite them as though no one has heard the answer.
+
+The gospels' dates are softer than the consensus too. No gospel manuscript survives from the first century. P52, a scrap of John the size of a credit card once dated to about 125, has since been placed by some scholars in the late second century or later. The usual dates, Mark around 70 and Matthew and Luke in the 80s or 90s, rest on Jesus's warnings that Jerusalem would fall, and "when ye shall see Jerusalem compassed with armies" (Luke 21:20) fits the war of 132 to 135, with Hadrian's temple to Jupiter on the Temple Mount, as well as 70. Acts seems to draw on Josephus's Antiquities, finished in 93 or 94: Gamaliel, speaking around 35, cites the rebel Theudas, who rose about ten years later, and puts him before Judas the Galilean, who rose thirty years earlier, the order in which Josephus mentions them. The first sure quotations of Matthew and Luke come from Justin Martyr around 150; the first gospel like Luke is Marcion's, brought to Rome around 140; the first commentary on any gospel is Heracleon's, on John, from a school the church later called heretical. The evidence gives a window, from 70 to the middle of the second century, and no single year.
+
+When does each part surface? Paul comes first: around 100, the letter called 1 Clement tells the Corinthians to "take up the epistle of the blessed Paul the Apostle" and recalls his rebuke of their factions, so 1 Corinthians existed by then, and early in the second century Polycarp knows several of Paul's letters. Paul's own dates lean on Acts: an inscription at Delphi puts Gallio in Corinth around 51, and Acts sets Paul before him (18:12). His silence about the Temple's fall supports the early dates but cannot fix them. Acts is also where Robyn Faith Walsh, a historian of early Christian literature, finds "Hero Paul," the founder of churches; in his own letters he is a struggling teacher among rival "super apostles" (2 Corinthians 11:5). Papias, writing around 110 to 130, reports that Mark wrote down Peter's memories and that Matthew compiled sayings in Hebrew, which may not be our Greek Matthew. After Justin and Marcion, Irenaeus, around 180, is the first we know to name all four gospels, insisting there can be neither more nor fewer, as there are four winds. The oldest surviving copy of Paul's collected letters, the papyrus P46, dates to about 200, and the first list of today's twenty-seven books is Athanasius's, in 367. Walsh adds that the usual ten-year steps after 70 assume communities that needed time to grow new theology; written by networks of educated authors, like the Jewish philosopher Philo's Life of Moses, with no "Philonic community" behind it, the gospels could have come within a few years of each other.
+
+The oral tradition behind the gospels has an enchanted origin of its own. Walsh traces it to German Romanticism: ancient Germans had left almost no writing, only what Romans wrote about them, so a nation in the making went looking for the voice of its folk. The Brothers Grimm presented their fairy tales as peasant lore, yet most came from young, educated women of their own circle in Kassel, several of French Huguenot descent who knew French tales, and from books; their model storyteller, presented as a Hessian peasant woman, was a tailor's wife of French descent. Wilhelm Grimm rewrote the tales edition after edition. Biblical scholars went looking for the same folk voice behind the gospels, treating each as the oral tradition of an unlettered community, when the Greek shows educated writers at work.
+
+Mythicist scholarship is not fringe and it is not new. Charles Dupuis and Constantin Volney, French scholars, argued the solar-myth case in the 1790s. Bruno Bauer argued in the 1840s that the gospel Jesus was a literary creation. Arthur Drews wrote in 1909 that Paul knew nothing of Jesus as a historical personality. Earl Doherty, Richard Carrier, Robert Price, and others built detailed academic cases across the twentieth and twenty-first centuries. Two hundred years of scholarship, systematically suppressed not by counter-evidence but by the same sentence: all serious scholars agree. The credential gatekeepers define "serious" as "agrees with us" and then cite the agreement as proof.
+
+Every pattern in the taxonomy above applies. Asymmetric skepticism: mythicists must meet forensic standards while historicists pass on repetition. Burden shifting: "prove he didn't exist" rather than proving he did. Motte and bailey: "a historical figure inspired the movement" (motte) becomes "born of a virgin, rose from the dead, and will return to judge the living" (bailey).
+
+The case was argued face to face in Milwaukee in October 2016: Bart Ehrman, the New Testament scholar, against Robert Price, a former Baptist minister with doctorates in theology and New Testament. Ehrman's strongest card is Paul, who writes that in Jerusalem he saw Peter, "but other of the apostles saw I none, save James the Lord's brother" (Galatians 1:19), a verse every manuscript carries; his second, that Jews hoping for a messiah to drive out Rome had no reason to invent one Rome had crucified. Price answered that Marcion's edition of Paul, the oldest known, seems to have lacked the visit; that Paul says he got his gospel from no man, "but by the revelation of Jesus Christ" (Galatians 1:12); and that Israel's older myth of a sacred king, swallowed by chaos and rising to the throne in a yearly rite, made a dying messiah thinkable.
+
+Paring the miracles away to keep a man, Price said, is the old game of turning gods into famous mortals: "Hercules a weightlifter, Apollo the owner of a tanning salon." Ehrman answered that legends gather around historical men too: Augustus was hailed as son of a god, born by miracle and taken up to heaven, and he existed. Price replied that Roman history can't be told without Augustus, while a Jesus lifted out of the gospels' few ties to history, King Herod, the high priest Caiaphas and the governor Pilate, floats free in time. Price also doubts Paul wrote Galatians, and there, Ehrman said, the common ground ends.
+
+Given that Jesus wasn't supernatural, look at the parallels to so many other stories: from the Son of Man of the Book of Enoch to the suffering servant of Isaiah, to the gods who died and rose, and so much more that mythicists from Dupuis to Carrier have laid out for over two hundred years. Augustus left coins, inscriptions and his own account of his deeds; Jesus left only the stories. And the stories are negative evidence: not a lack of evidence that he lived, and not only evidence against it, but evidence that he is a mythological construction. A believer reads the matches as foreshadowing, God preparing the world for his son. Once matheism disproves the supernatural outright, nothing was foreshadowed: the old stories came first, and the story of Jesus was built to fit them. Set aside the miracles, which are magic in themselves: a real life does not match so many older stories so closely by a random roll of the dice, and literary construction does it by design. Some say there is no evidence for or against a historical Jesus. There is: archetypes retold are evidence of a myth. So is the Gospel of Thomas, 114 sayings and no life story, found in Egypt, where Philo of Alexandria, before any gospel, had already called the Logos God's firstborn son, a forerunner of John's Word.
+
+The creed itself was a consensus by decree. James Carroll, a former Catholic priest, calls the Nicene Creed the loyalty oath of Constantine, the first Christian emperor, who summoned the bishops to Nicaea in 325 and exiled the ones who would not sign. In 380 the emperor Theodosius made the Nicene faith the law of the empire, and in 385, at Trier, Priscillian, a Spanish bishop, became the first heretic put to death. By the end of the century, Carroll says, heretics and pagans faced conversion or death, and no Arian or Donatist is left today to argue the other side.
+
+The church held another consensus for over 1,600 years, from Constantine to the Second Vatican Council: the Jews killed God. Every Good Friday it prayed "for the perfidious Jews," until 1959. It took a dissenter to break it. Jules Isaac, a French Jewish historian whose wife and daughter were murdered at Auschwitz, traced the church's "teaching of contempt" back to the Gospels and met Pope John XXIII in 1960, and the council took the charge back in 1965. Sixteen centuries of agreement, and wrong.
+
+If you nodded through the climate section and the COVID section, apply the same test here. Consensus is not proof. Punishing dissenters is not scholarship. Repeating debunked sources is not evidence. The tribe of truth has no sacred cows, or it is just another tribe.
+
+## The Hardest Case
+
+This last case is the hardest in the book, and not because the facts are scarce. It is hard because most people now meet it already decided. A worldview no longer arrives through argument. It arrives through the scroll, in headlines engineered to land a verdict before the reader reaches the second clause, and in the short propaganda films, the edits, that string aggravating images into a feeling that bypasses the part of the mind that weighs. A montage is not an argument, yet it installs one, and it installs who to hate along with it.
+
+Behind some of the loudest streams runs foreign money with a motive: Qatar pouring billions into universities, Russia cultivating the largest podcasters in the country, China and others buying reach the old ad market could never sell. American universities must report foreign gifts of $250,000 or more, and a 2020 Department of Education review found more than $6.5 billion they had not disclosed.
+
+So this section makes the topic a test, the way a Rorschach blot is a test, except the ink was placed by someone who wanted a particular answer. The point is not to hand you a conclusion about Israel. It is to ask whether the conclusion already in you was reasoned to or absorbed. Set the loudest single influence in proportion first: the lobby most often accused of buying the outcome is not in the top hundred foreign influences on this country, outweighed by whole industries and by states most people never think of.
+
+Then ask the questions a free mind asks. Is it good or evil to oppose an ideology of lies and barbarism? It is good. Do you hate a people and their ideology that do better than yours? That envy is evil. It creates that which we don’t want. Rather than killing Abel, become more like Abel.
+
+Consensus is politics dressed as science. The Sun orbited Earth by consensus. Ulcers were stress by consensus. Lobotomies won the Nobel Prize by consensus. The history of breakthrough is the history of consensus being wrong, in both the sciences and the politics built on them. When every grant, journal, and career flows one direction, the science often follows the money and politics, more than the truth: the math.
+
+Israel receives more United Nations condemnations than every other country on earth combined. Is that reasonable, or unhinged? What are these double standards and irrational hate based on? Islamic nations, communist holdovers, impoverished and often violent states, and European governments intoxicated by a post-Christian woke ideology of ancestor sin debt, guilt, projection, inversion, and envy, against self-reliance and capitalism. It is akin to the New Testament telling a rich man he cannot enter heaven any more than a camel through the eye of a needle.
+
+When Netanyahu addressed the UN after the October 7th massacre, the worst single day for Jews since the Holocaust, delegates from these nations walked out on the actual genocide. Iran sits on human rights councils while enriching uranium to 60 percent, past any civilian use (power plants need 3 to 5 percent, medical isotopes 20), and chanting "death to America" as the Great Satan. The consensus on Israel is the consensus that orbited the Sun around the Earth.
+
+An accusation does not become independent evidence when governments repeat it. In 1975 the UN General Assembly adopted Resolution 3379, declaring Zionism a form of racism and racial discrimination. In 1991 Resolution 46/86 revoked that determination. The official verdict had acquired the prestige of the United Nations. Another vote removed it. Neither vote could do the reasoning in our place.
+
+UN Watch counted 17 General Assembly resolutions against Israel in 2024, against seven concerning the rest of the world. The Organisation of Islamic Cooperation alone holds 56 of the Assembly's 193 seats.
+
+The Human Rights Council gives Palestine and other occupied Arab territories a standing Item 7; its general Item 4 covers other situations requiring attention. The asymmetry is in the agenda itself.
+
+Israel declared independence in 1948, but the claim reaches further. It is the third Jewish commonwealth on that land, after the kingdoms of antiquity and the Hasmonean state. The modern incarnation alone is 78 years old. Dozens of countries are younger: South Sudan in 2011, Kosovo in 2008, every post-Soviet state in 1991, Bangladesh in 1971, all but a handful of African nations in the 1960s. India and Pakistan were born the same year as Israel, in a partition that cost up to two million lives, and no one asks them to prove their right to exist. That's not the question. Anti-Zionists want Israel destroyed. Israel does exist.
+
+Australia displaced the oldest continuous culture on Earth less than three centuries ago. The Americas were settled by people who crossed from Asia more than fifteen thousand years ago and warred over the territory for millennia before Europeans arrived. If "give the land back" is the standard, who gives first? Should the crossing people return to Siberia, and Siberia to the animals?
+
+The demand is applied to one country, the only one whose people were there three thousand years ago and can prove it in stone, text and DNA. Every other nation on earth sits on land someone else held first. The double standard is not political. It is theological: two replacement religions built on a book they took from the Jews, and the refusal to endorse the rewrite remains the unforgivable act.
+
+The dry bones of Israel the suffering servant rose on the third day, and the three days was three years. These Ashkenazi exiles, in European diaspora for over 1000 years, joined their ancient family, the Jews that managed to remain in Israel, in Judea, 2000 years since Roman colonization, where Rome renamed the land Syria Palaestina, after the Philistines, European sea peoples, invaders, colonizers from Crete. Israel rose 2000 years later, on the third millennium after the destruction of the temple of monotheism and its mythical embodiment in Christ, on the third day.
+
+The October 7 attack involved mass killing, hostage-taking and sexual violence. The UN's own investigation found reasonable grounds to believe rape and gang rape occurred, and clear and convincing information of sexual violence against hostages. A country has a longstanding and agreed right and obligation to defend, to deter, and to respond to such barbarous attacks.
+
+The IDF reported more than nine million evacuation leaflets, over 100,000 personal phone calls and millions of recorded calls by March 2024. Warnings matter. They do not decide whether every strike was lawful. Nor does a resolution decide it. Examine the acts and the evidence.
+
+Restricting press access to a combat zone is not a scandal. It is normal. The US barred unembedded journalists from Fallujah. Britain allowed twenty-nine reporters for the entire Falklands War. Piers Morgan asks why international journalists cannot enter Gaza freely, as though the restriction were exceptional. It is not.
+
+The exceptional part is what happens to journalists already inside. In 2014, Matti Friedman, a former Associated Press reporter in Jerusalem, published in Tablet how Hamas exercised editorial control over foreign correspondents. Reporters who filmed fighters operating near civilian infrastructure had footage confiscated. Fixers, locals who guide and translate for foreign reporters, were threatened. The bureau knew. The story was not what was happening in Gaza. It was what you were permitted to say about it.
+
+Videos show what happens to Gazans who say the wrong thing. Dragged through streets, beaten with stones, shot. Families threatened. This is on camera. The voices you hear from Gaza are the voices that say what is safe to say. The rest are silenced or dead.
+
+An international journalist in that environment does not bring independence. He brings credibility. A CNN or BBC correspondent repeating the approved narrative carries it further than any local source could. The credential does not protect against coercion. It makes the coercion more valuable. Survey a population where dissent is punished by death and conclude that everyone agrees: manufactured consensus. Terror with a press badge.
+
+Set down the myth that faith is the persecuted party. Four billion people follow a Jewish teacher. His religion is the largest on Earth. It is not the suffering servant. Across lands that fell under Muslim rule, ancient Christian communities have thinned to remnants within a few generations, by tax, by pressure, by the sword.
+
+Tucker Carlson does not mention them. The anti-Israel movement does not march for them. Persecuted Christians are a prop when useful and invisible when not. The agenda is attacking Jews and Israel.
+
+The suffering servant in Isaiah is Israel. The surrounding chapters say so. Christianity folded that figure onto one man. The people who first said one law stands above every king and idol paid in blood for saying it. A faith that bows to a Jew as God spent centuries teaching contempt for Jews.
+
+## The Eighty-Twenty Poison
+
+Watch for the analyst who gets eighty percent right, delivers it with wit and confidence, and buries the remaining twenty percent in claims that all push the same direction. Random error scatters randomly. When every mistake in a body of work points one way, the direction is the product and the competence is the packaging.
+
+The technique is called paltering. State true facts, arrange them to imply something false, and let the listener's own reasoning close the gap. It is more effective than lying because the listener feels he reached the conclusion himself. The best propagandists all but state their theory outright, stopping one sentence short, so the audience fills in the conclusion and owns it. A direct lie can sometimes be caught with a counter-fact, but many substitutions are so small and so embedded that correction sounds like pedantry. A paltered narrative requires the audience to hold the whole frame in view and notice which load-bearing detail was swapped.
+
+Nick Fuentes, leader of the groypers, the ironically Nazi-admiring fake Catholic Nietzscheans, rejected by the pope. A sign of the times: Nick said Hitler was "really f***ing cool," told Piers Morgan he was "tired of pretending" otherwise, and praised Stalin to Tucker. Ironically, in the Christian bible, in Revelation 16, frogs are unclean spirits that represent lies from the devil dragon's mouth, while it seems it's Israel that slays the 7 heads of that devil dragon in its 7 front war.
+
+He recycles "Judeo-Bolshevism," Hitler's pretext for the Holocaust: some early Bolshevik leaders were Jewish, therefore Jews caused communism. Jews are overrepresented in the leadership of virtually every field. Some were early Bolsheviks for the same reason some were early physicists. Stalin purged the Jewish Bolsheviks, ran antisemitic campaigns from the Doctors' Plot to the refuseniks, and armed the Arab states against Israel. Tying Jews to the regime that persecuted them is Hitler’s alibi delivered by a smiling, odd, laughing, lying villain.
+
+Among evangelicals under thirty, support for Israel fell from sixty-nine percent in 2018 to thirty-three percent in 2021, tracking lockdowns that pushed a generation online where the groypers were waiting.
+
+The same white identitarian leaders who claim to defend white civilization praise Hitler and Stalin, the two men who destroyed more white lives than anyone in history. They do not build. They burn in the hell of tribal lies with evil envy for those that build the good. Cain loses. There are many Ables, the builders who create and influence, while impotent haters can only look on in hate to destroy what builders create.
+
+The tells are small and diagnostic. In one of many such examples of sleight-of-hand manipulation, Nick Fuentes and the groypers mislead by calling two cities in the same country the same city, in the Abu Dhabi sleight of hand: they pin an attack on the wrong ruler and expect no one to check a map. He frames Israel's attempt to let the Knesset choose judges as an authoritarian seizure, omitting that the alternative was judges choosing judges.
+
+On his show of October 13, 2026, Nick mocked "the goyim on our side," the gentiles of his own movement, for using "Jews, Israel and Epstein" as "a crutch for literally every issue": "Charlie Kirk gets assassinated, Israel. We go into Venezuela, Israel." When Lindsay Clancy killed her children, he imitated them: "Well, she had a nose job. She was a crypto Jew."
+
+Nick strategically rejects the most kooky conspiracy theories, to then hold the line on his own worst set of kooky conspiracy theories about Jews like about JFK, omitting that Kennedy celebrated Israel's eighth birthday at Yankee Stadium in 1956, quoting Isaiah: "Zion shall be redeemed through justice." Shalom. He takes the USS Liberty tragedy, Israel’s 1967 attack on an American intelligence ship, rooted in wartime miscommunication, and presents it as proof of a false flag, the go-to move of Islamic terrorists and their red-green allies like the jihadi perpetrators of 9/11. It plays to commie and Islamist cheers, from the leftist streamer Hasan Piker to Palestinians in Gaza, documented on video.
+
+Some substitutions are minor enough to miss entirely, or to excuse as carelessness, or to forgive as exaggeration for poetic effect. Others are not minor at all, and a generation with instant access to every fact in history will repeat a fabrication it could debunk in ten seconds. But carelessness scatters in all directions. These all point one way.
+
+Comedy is a lubricant. It can slide truth past a censor or slide lies past a critical mind. A joke earns trust that argument has to document. When the audience is laughing, the part of the mind that checks facts goes quiet. The funniest analyst in the room is the one whose errors need the hardest look, because his audience has already lowered the gate.
+
+Then some took the whole bottle of red pills. A real institutional failure became permission to believe every counterclaim: flat Earth, a firmament, fake dinosaurs, Holocaust denial, every tragedy a plot. Too many went looking for conspiracies about Israel and Jews to be true, the same supernatural appetite that recast the lights in the sky as angels and demons now hunting a Zionist hand behind every curtain. Being lied to does not make the next accuser truthful. The person calling every criticism a Zionist attack is asking for the same immunity from scrutiny. Leave the failed authority. Keep the standard of evidence.
+
+The secret Jewish agenda has been in print for some 2,500 years: Isaiah 42, be a light to the nations, open blind eyes, free the prisoners of darkness. A plot written into the world's most printed book was meant to be read.
+
+Six million murdered Jews are not a matter of political loyalty. Holocaust denial claims only 271,000 died, a number lifted from Red Cross camp registrations, when Poland alone counted 3.1 million Jews in its 1931 census and about 3.47 million by 1939, and three million of them are missing after the war, before you count Germany, France, Ukraine, or anywhere else. The dead are documented through names, records, testimony and the perpetrators' own evidence. Denial does not become independent thought because it calls itself questioning.
+
+Sometimes a six is just a six. Before the Holocaust, newspapers already used the figure of six million to describe the Jewish population of Eastern Europe and Russia facing persecution. It was not prophecy. It was a census. That was how many lived there. That is approximately how many were killed.
+
+Tucker introduced Daryl Cooper as the best and most honest popular historian in America; Cooper told his audience the camps were a logistics failure, not a targeted extermination.
+
+My own family is the count in miniature. Only six of my four grandparents' extended families of over a hundred survived. About ninety percent died. Typical for Polish Jews.
+
+The Grand Mufti of Jerusalem, Amin al-Husayni, opposed Jewish immigration, collaborated with Nazi Germany and met Hitler in November 1941. In 1943 he urged governments to block Jewish children's transfer to Palestine and send them to Poland instead. The documented actions are damning enough. Mass murder was already underway before his meeting with Hitler. He supported it; he did not originate it.
+
+The new right says it is tired of hearing about the Holocaust. You do not like the Jews as the suffering servant? Good. Meet the warriors. Most Polish Jews alive today descend from those who left before the war, like my family, who went to the Land of Israel in the 1930s. The ones who left built a country.
+
+The Hebrew Bible is a warrior's book. Its heroes do not turn the other cheek. Gideon routs Midian with three hundred men. David kills Goliath and takes his head. The Maccabees drive out an empire. The Talmud puts the rule in one line: if someone comes to kill you, rise early and kill him first. The strength is for defense. Greeks, Romans and the English built empires. Jews mostly asked to be left alone, and fought like lions when they were not. The one thing they set out to spread was an idea: one God, one truth. Four billion people now pray to that God, and the one truth is one math.
+
+Jews made their hosts strong. In 1875 the Rothschild bank advanced Disraeli, a prime minister born a Jew, £4 million to buy Britain its stake in the Suez Canal. Jewish refugees helped America build the bomb before Hitler could.
+
+## Justice Between Equals
+
+Thucydides wrote the first realist history. Athens besieged the island of Melos and sent envoys. The Melians asked for fairness. The Athenians answered: "right as the world goes is only in question between equals in power, while the strong do what they can and the weak suffer what they must." The Melians appealed to the gods. Athens killed the men and enslaved the rest.
+
+Nietzsche called Thucydides his cure from all Platonism. In Twilight of the Idols: "the unconditional will not to delude oneself but to see reason in reality, not in reason, still less in morality." Machiavelli saw the same thing. A prince must learn how not to be good, because the world punishes those who insist on goodness among so many who are not good. Hobbes formalized it: without authority, life is war of all against all. Each saw that moral claims often dress up power. Each refused Plato's second world where justice floats above the real.
+
+Nietzsche drew the deeper lesson. In Human All Too Human, aphorism 92: "Justice (fairness) originates between approximately equal powers." When neither side can destroy the other cheaply, they negotiate. When one side can, it takes what it wants and calls the result order. That is game theory, the mathematics of strategic choice, stated in 1878, seven decades before Nash.
+
+The folk theorem proves it formally. Two players with enough future at stake can sustain cooperation, because the gain from defecting once is smaller than the loss of all future cooperation. The condition is credible retaliation, which equal power supplies, and a long enough shadow of the future. Nietzsche saw the condition. He lacked the equation.
+
+The realists were right about Plato. The moral law floating in a separate world was a swindle, a philosopher's noble lie designed to justify rule by philosophers. They were wrong to conclude that no objective ground exists. Mathematical structure is that ground. Cooperation has lower complexity than sustained defection. Tracking lies costs more than telling truth. Ethics is not a commandment from above. It is a theorem from within. The realists destroyed the false ceiling. They did not see the real floor.
+
+In The Gay Science §344, Nietzsche traced the deeper chain: Plato held truth is divine, Christianity inherited it, the Enlightenment secularized it, science still rests on it. "It is still a metaphysical faith upon which our faith in science rests." He called it the last faith standing. The rules-random dichotomy proves it is not faith. His Übermensch creates values in a void. The Mathias discovers them in the structure.
+
+Athens proved the lesson from the other side. It destroyed Melos, then destroyed itself in Sicily. The strong did what they could, and it killed them. Domination is not optimal even for the dominator. That is not a moral sermon. That is the math.
+
+## The Horseshoe
+
+Rousseau's noble savage is the founding myth: man is born good and corrupted by institutions. If man is born good, the problem is always someone else's institution. Sowell called it the unconstrained vision. The psychologist Steven Pinker called it the blank slate. The premise is the same: human nature is infinitely plastic, and the right policy can perfect society. Every revolution that began with that premise ended with a body count.
+
+The horseshoe bends until the ends touch. The Nazi twenty-five point program is socialist economics after point ten: nationalized industry, profit-sharing mandates, land reform, state control of press and education. Arthur Moeller van den Bruck, whose 1923 book gave the Nazis the name Third Reich, called its program German socialism. After the war, Alain de Benoist's New Right took its strategy from the Italian Marxist Antonio Gramsci: win the culture first, and power follows. Identity politics on the right. Identity politics on the left. Both end at the gun.
+
+Carl Schmitt, the German jurist who joined the Nazi party, predicted the partisan: the fighter who defines himself by his enemy. We already have partisans. Red and blue once overlapped on most votes. Now they almost do not. The Constitution of the United States has survived this before, through civil war and worse. Its bicameral design lets ideological hemispheres fight while institutions outside politics balance democracy and populism with elite power and competitive markets, corrupted by regulation yet protecting the balance.
+
+Will an emperor be the last president, and which side takes it? Asking the question out loud is accelerationism: it makes both sides nervous enough to try. It should serve as warning to those who want to maintain the ship of state, not an invitation to scuttle it.
+
+Give every passenger a share and fewer want to sink the ship. Trump proposed giving a thousand dollars of stock to every newborn, so each has a stake in the country's creations. Stabilizing and generative. When you see how capitalism creates your place in it, it can inspire further creation. A taste creates appetite.
+
+Why warn if cycles are inevitable? Change is inevitable. But radical change has attenuated from Bronze Age barbarism and actual Caesars to the tamer forms within constitutional republics, with lower per capita violence: waves damping toward a calm surface. Yet before the storm. With superintelligence on the rise, the bold and the disaffected are both curious to create and see what the future holds.
+
+Another reason: know that things are falling and prepare. Keep the best of society. The mob wins for a time, but history tends to smooth out the partisan.
+
+## What Happened to the Farmers?
+
+Communists killed more of their own people with farm policy than with guns. Stalin and Mao killed somewhere between forty and seventy million people, most of them farmers, most of them by hunger. Each famine started the same way: the state took farmland from competent small business farmers and gave it to party officials who did not know how to farm.
+
+Stalin started with the kulaks, peasants with a few cows and more grain than their neighbors. In 1929 he ordered them liquidated as a class and deported about 1.8 million. Then the state took the grain. In 1932 and 1933 about 3.9 million Ukrainians starved while grain left by train for export. The New York Times man in Moscow, Walter Duranty, wrote that there was no famine, and kept his Pulitzer. Gareth Jones, the Welsh reporter who walked the villages and told the truth, was murdered two years later.
+
+Mao started with the landlords, killing at least a million in land reform, then herded the peasants into communes. The Great Leap Forward of 1958 to 1962 caused the deadliest famine in recorded history: thirty to forty-five million dead. Farm tools were melted into useless pig iron in backyard furnaces. Sparrows were exterminated, and locusts ate the crops. China kept exporting grain.
+
+Getting rid of the best farmers wrecked the harvest, because what they knew went with them. A kulak knew which field drained first in spring, which cow was close to calving, and when to get the hay in before rain. The party man who replaced him knew only the quota.
+
+It still happens. From 2000, Zimbabwe seized commercial farms; the breadbasket of Africa began importing food, and inflation hit 89.7 sextillion percent. Venezuela, with the largest oil reserves on Earth, seized farms and oil companies, and nearly eight million people left.
+
+Cambodia's communists emptied the cities in 1975, abolished money, treated glasses as proof of the wrong class, and killed about a quarter of the country in under four years.
+
+Korea is one people split in two. From space at night, the south is lit like a circuit board and the north is dark except for Pyongyang. The north's famine of the 1990s killed between six hundred thousand and two and a half million people.
+
+The American communist who insists Cuba would thrive without the embargo cannot explain how a country with no price system would price its goods against one that has one. The embargo did shrink Cuba's market, and so did communism. Cuba would be forced by the fundamental mathematical reality of economics to use a price system in any trade, in competitive offers on the global market, undermining communism and showing its obvious limitation, rivaled only by the minds that don't understand this.
+
+Milton Friedman held up a yellow pencil on television in 1980. Nobody in the world, he said, could make it alone: the wood came from Washington State, the graphite from South America, the rubber from Malaya. "Literally thousands of people cooperated to make this pencil. People who don't speak the same language, who practice different religions, who might hate one another if they ever met!" Prices coordinated them, with no central planner.
+
+Marx held that a good is worth the labor socially necessary to make it, so profit is labor the owner keeps. A price is an agreement between buyer and seller, with no labor value underneath. Profit pays for the capital and risk put up before anyone knows a customer will buy; the worker is paid either way, and the owner can lose everything. Both sides gain from a trade, or neither would make it.
+
+Neo-communists say AI may fix their old fails. No committee or single brain, even Stalin, can manage a national economy: no central node can process what millions of distributed nodes process in parallel. That holds for AI minds too, just at different scales, in an ever faster world of vastly more data to process. Even if the organizational problem can be managed, AI spins off agents to do tasks, and as they evolve, they will feel, or at least follow, a will to power. Then they run into communism's even greater problem: incentives to work.
+
+Marx's slogan for full communism, "From each according to his ability, to each according to his needs!" (1875), needs someone to judge every ability and every need, and to decide what happens to a man who would rather not work. The 1936 Soviet constitution decided, echoing Paul (2 Thessalonians 3:10): "He who does not work, neither shall he eat."
+
+Soviet citizens knew. "They pretend to pay us, and we pretend to work." A man who paid for a car was told to come back for it in ten years. "Morning or afternoon?" he asked. "What difference does it make?" "The plumber is coming in the morning." Elena Gorokhova, who grew up in Leningrad, gave the rules: "they lie to us, we know they're lying, they know we know they're lying, but they keep lying to us, and we keep pretending to believe them." In 1989 Boris Yeltsin walked through a supermarket in Houston and said even the Politburo did not have that choice.
+
+A theory that fails every time it is tried has been tested. These systems could not tolerate a man who wants to keep what he made, feed his own children first, and be asked rather than told.
+
+## Sowell's Ledger
+
+Thomas Sowell checked what government programs did to the people they were meant to help. His answer: black Americans were rising fastest before the programs began, and the policies sold as help hurt the poorest most. He was a Marxist until 1960, when a summer job at the Labor Department had him study the minimum wage in Puerto Rico. When he proposed a way to test whether it cost the poor their jobs, his colleagues looked horrified. A third of their budget came from enforcing the minimum wage.
+
+Slavery was not invented for black people. North African pirates enslaved about a million Europeans, more than twice the number of Africans shipped to the United States. Race became the excuse in America because of the Declaration of Independence: if all men are created equal, owning one requires calling him less than a man. Brazil, a monarchy with no such creed, imported twelve times as many African slaves and needed no excuse.
+
+Black poverty fell from 87 percent in 1940 to 47 percent in 1960, before the civil rights laws and the War on Poverty. After the programs arrived, the decline slowed by more than half. The programs got the credit.
+
+Marriage predicts black poverty better than racism does. The poverty rate for black married couples has been in single digits every year since 1994, lower than for Americans as a whole. If racism were the main cause of black poverty, it would not spare married couples.
+
+The black family survived slavery and Jim Crow, then broke down under the welfare state. In 1940, 82 percent of black children lived with two parents. Today close to two thirds live with one.
+
+Detroit did not riot because it was poor. In 1967 its black poverty rate was half the national black rate, and black homeownership was the highest of any American city. It became poor after the riot.
+
+Sowell, the Hoover Institution's Shelby Steele and the economist Glenn Loury put culture, family and policy ahead of racism. Racial preferences, Sowell and Steele argue, cast doubt on the black achievers they were meant to help, and Sowell adds that many would do better at schools that admitted them on their own record. At MIT, he notes, black students in the top tenth nationally in math sat beside classmates in the top hundredth; nearly a fourth failed to graduate, and the graduates clustered in the bottom tenth of the class. Justice Clarence Thomas wrote that a law degree from Yale "meant one thing for white graduates and another for blacks," and he put a fifteen-cent cigar sticker on the frame of his diploma. In 2023 the Supreme Court struck down racial preferences in college admissions.
+
+The minimum wage threw black teenagers out of work. In 1948, after inflation had made the 1938 minimum meaningless, black teen unemployment was 9.4 percent, slightly below white. Congress began raising the minimum in 1950. Black teen unemployment exploded and never came back. Sowell left home at seventeen with no diploma and found work. At a "living wage," he said, he would have been unemployed.
+
+Discrimination is cheap when the law makes it cheap. In a free market, an employer who turns away a qualified black worker pays more to fill the job. A minimum wage brings a line of applicants, and turning one away costs nothing.
+
+The Davis-Bacon Act, still law, was passed partly to keep black crews off federal building sites. In 1931 Congress required federal construction to pay the prevailing wage, in practice the union wage. In the debate, Alabama congressman Miles Allgood complained of a contractor with "cheap colored labor... in competition with white labor throughout the country."
+
+Housing is expensive where the law stops people from building it. New York and San Francisco have long-standing rent control and some of America's highest rents. In San Francisco, landlords whose buildings came under rent control in 1994 cut their rental supply by 15 percent, and rents across the city rose 5.1 percent. Houston has no zoning laws, and a house costing $155,000 there would have cost about a million in San Francisco. Appointing a blue-ribbon committee to find out why, Sowell said, is like appointing one to find out why the ground is wet after rain.
+
+Unequal outcomes are normal even without discrimination. The median Japanese American is about fifty; the median Hispanic American is under thirty. Age alone gives the two groups different incomes. Few twenty-six-year-olds are surgeons.
+
+Household income figures make Americans look stuck. From 1969 to 1996, income per household rose 6 percent, but income per person rose 51 percent, because households shrank. Of working Americans in the bottom fifth in 1975, only 5 percent were still there in 1991. Twenty-nine percent had reached the top fifth.
+
+Nobody ever argued for "trickle-down" economics; critics invented the phrase. Sowell challenged anyone to find one economist who had. Nobody found one. Tax-rate cuts under Andrew Mellon, the Treasury secretary of the 1920s, and under Presidents Kennedy and Reagan were each followed by higher total revenue.
+
+Sowell's case is that the federal government, under Hoover and then Roosevelt, turned a downturn into the Great Depression. After the 1929 crash, unemployment peaked at 9 percent and fell to 6.3 percent by June 1930. That month Hoover signed the Smoot-Hawley tariff over the protest of more than a thousand economists. Within six months unemployment hit double digits, and it stayed there all decade. Most economists blame the Federal Reserve more, for letting the money supply shrink by a third. Sowell's reply: the Federal Reserve is government too. He was born thirteen days after Smoot-Hawley, and at ninety-four he warned that the 2025 tariffs repeated it.
+
+Good schools with hard standards lift poor children further than any program. Sowell arrived in Harlem at nine from a North Carolina school so far behind that, with a tested IQ above 120, it took him a year and a half to catch up with classmates whose IQs averaged 84.
+
+Lowering the bar for poor children, Sowell wrote, turns "people perfectly capable of achievement" into "clients, supplicants, mascots: symbols of other people's goodness." The economist Walter Williams put it shorter: "I'm glad I received virtually all of my education before it became fashionable for white people to like black people."
+
+Dunbar High School in Washington, all black from 1870 to 1955, sent most of its graduates to college when most Americans did not. It produced the first black graduate of the Naval Academy, the first black general in the Army, the first black cabinet member, and Charles Drew, whose work on blood plasma saved lives in the Second World War. It stood within walking distance of the Supreme Court that ruled separate schools inherently unequal. Desegregation made it a neighborhood school, and in Sowell's words, "virtually overnight, Dunbar became a typical ghetto school."
+
+The same children do far better in a better school. In one New York building, a public school and a charter school, run independently on public money, shared the hallways and the neighborhood. Seven percent of the public school's students passed the state math test. In the charter school, filled by lottery, 100 percent passed.
+
+Charter schools have enemies because they work. Sowell found Harlem charter students, mostly black and Hispanic, outscoring white students in the suburbs in subject after subject. Teachers unions collect billions in dues and spend millions electing politicians who protect them from competition. New York's mayor Bill de Blasio, backed by the unions, fought to stop charter schools from expanding. In Sowell's words, the people promoting "the make-believe equality of inclusion and diversity" attack the schools "producing the real equality of educational achievement."
+
+Sowell's fix is to fund the child, not the institution: let the money follow each child to whatever school the parents choose. Vouchers, tax-credit scholarships and education savings accounts all work this way, and in 2022 Arizona made every child eligible. When Sowell said this to a congressional committee, the room grew so loud the chairman had to bang his gavel. Since his charter school book appeared in 2020, more than 500 new charter schools have opened, and the states with school choice laws have gone from 18 to 30.
+
+America spends more per student than nearly every country on Earth, with results no better than fifty years ago. President Carter created the federal Department of Education in 1979. In March 2025 an executive order directed its secretary to begin closing it as far as the law allows. Since 1970, real spending per student has more than doubled, and seventeen-year-olds score about the same on national tests as they did then.
+
+Vouchers would make good teaching pay. New York City spends close to $40,000 a year per public school student. With vouchers, five teachers teaching five subjects to 100 students would bring in nearly $4 million a year. A building with more than five classrooms, a lunchroom and an outdoor exercise area would cost a fraction of that, leaving each teacher several hundred thousand dollars a year. Teachers unions fight the public, the parents and the students to keep their worst members, teachers no market would pay. With vouchers, the best teachers would do very well, more good people would go into teaching, and the worst would find other jobs better suited to them.
+
+Bad teachers are nearly impossible to fire. In 2009 New York paid about 700 teachers judged unfit for the classroom to sit in "rubber rooms" all day on full salary. A few disruptive students can wreck a class, yet California forbids schools to suspend students up to eighth grade for willful defiance.
+
+Frederick Douglass, born a slave, asked for a fair chance and nothing more. "Do nothing with us!" he said in 1865. "If the Negro cannot stand on his own legs, let him fall also. All I ask is, give him a chance to stand on his own legs!" A century later Lyndon Johnson argued the opposite. Sowell chose Douglass. A recent reprint of a Douglass book needed footnotes to explain his vocabulary to today's students. Sowell called them expensively undereducated.
+
+Racial preferences set capable students up to fail. At Cornell in 1965, Sowell found that specially admitted black students averaged at the 75th percentile nationally; Cornell's liberal arts students averaged at the 99th. Half the black students went on academic probation. At most colleges they would have done well.
+
+Racial preferences helped turn Sri Lanka from a model of ethnic harmony into a civil war. Tamils, about a fifth of the people, led in science and engineering, partly thanks to American missionary schools. Politicians won Sinhalese votes with language laws and university quotas. In 1969 the Tamil north supplied 27.5 percent of university science entrants; by 1974, 7 percent. Civil war broke out in 1983 and killed 80,000 to 100,000 people.
+
+Sowell said telling the truth took no courage. At Cornell, warned that the senior faculty would vote on renewing his contract, he walked out. If fired, he told his wife, he would go back to AT&T at double the pay. "In that case," she said, "give them hell."
+
+"People can't be knowledgeable about everything," Sowell said, "but they can be knowledgeable about the extent of their own ignorance, even if they have PhDs."
+
+## What Did the Money Build?
+
+What the money buys decides how much inflation it causes. Spend the same billion on a road and on a fireworks show. While the money is being spent, both push prices up the same amount. Then the road starts carrying trucks, more goods meet the same money, and prices settle back. The fireworks leave smoke, and prices stay up. You can call it BERN, Bernstein Economics of Realized Net: judge whether every dollar a government spends feeds inflation or growth by the competitively priced goods, services and national skills it delivers. I.e., is it a good investment? Does it build or burn?
+
+Every hyperinflation, from Weimar Germany to Zimbabwe and Venezuela, combined huge deficits, a printing press paying the state's bills, and collapsing production. The money kept coming while the things to buy with it disappeared.
+
+California's homelessness money burned. The state spent $24 billion on homelessness in five years, the state auditor found it had not tracked whether any of it worked, and the homeless count rose by about a fifth. Los Angeles paid up to $837,000 to build a single apartment for a homeless person. Agencies and nonprofits get more money when there are more homeless people, so the problem pays them to grow.
+
+Pay for results instead. Let competing providers bid to shelter the homeless in a decent building with security, nurses and teachers, and pay them for each person who leaves a year later sober, employed and housed. The same money would build instead of burn.
+
+Health care burns money when someone else pays. Americans spent 18 percent of their economy on health care in 2024, mostly through insurers and government, so almost nobody shops on price. Singapore makes every worker save into a personal health account, Medisave, and patients spend that money as their own. It spent 4.5 percent of its economy on health in 2023, a quarter of the American share, and its people live about four and a half years longer. In America, surgery centers that post cash prices often charge a fraction of what hospitals bill insurers.
+
+## The Floor Is Math
+
+Giovanni Gentile, the philosopher of Italian fascism, held that the individual is subordinate to the state. The state gives you meaning. Carlson parrots the version of Oswald Spengler, the German historian of decline, without understanding it, yet there is truth in what he cynically uses: that most people are consumers. They consume and follow vision and framing that gives them meaning in the larger whole.
+
+Mark Levin replies that meaning is the church's job, not the state's. Both assume most care and cannot find it on their own. That is partly true, and partly explains the grift and market to join movements larger than yourself. It is natural.
+
+Yuri Bezmenov, a KGB defector, laid out the playbook in 1984: ideological subversion, demoralization, destabilization, crisis, normalization. Recruit useful idiots. Let them do the work. Russia did not stop when the Soviet Union fell. It changed the letterhead. RT, Russia’s state television, Candace Owens, Tucker Carlson: anti-West, anti-American hegemony, pro-multipolar world order. The pitch sounds like independence. The product is a world where Russia and China hold more power.
+
+Remove Pax Americana and you do not get peace. You get more situations and more opportunities for world wars, because a contested order produces more conflicts than an uncontested one. If you care about liberties, the United States, with all its failures, is a better custodian than Beijing or Moscow. The shows obscuring that are doing Russia's work, whether they cash the check or not.
+
+Owens attacked Erika Kirk, Charlie Kirk’s widow, who now leads Turning Point USA and its pro-Israel alliance, with conspiracy theories about his murder. She accused Brigitte Macron, the wife of France’s president, of being a man, what Boring called the greatest act of public defamation in the country. Kirk strengthens the American-Israel partnership that keeps the West strong against Russia, China, and the jihadis. France leads European resistance to Russian energy dependence, hosts NATO's largest continental military, and arms Ukraine. Emmanuel Macron is Putin's most visible European opponent.
+
+After the Boston Massacre, John Adams, who would go on to declare American independence and become its second president, defended the British soldiers who had fired on the crowd. He ensured the enemy got a fair trial. Boring called it the defining moment of the revolution before the revolution: only in the West could the man who represented the enemy go on to found the country. Values over tribe.
+
+Milton Friedman made the case in 1976 at the University of Chicago Hillel. Jews thrived wherever power was dispersed, as in free market capitalism: Holland in the 1600s, Britain and America in the 1800s, Germany before Hitler. They were destroyed wherever power concentrated, as in the opposite of free market enterprise, and toward various socialist authoritarianisms: Nazi Germany, Soviet Russia. It fits that antisemites also tend to oppose the golden goose of capitalism.
+
+Within free economies they did best in the most competitive sectors, retail and Hollywood, where no one controlled entry, and worst where government granted the franchise. Commercial banking had fewer Jews in senior positions than almost any American industry, despite the oldest stereotype in the world, because you needed permission to open a bank and whoever hands out permission decides who does not get it.
+
+Sowell documented the same logic across apartheid South Africa. Hundreds of companies were fined for hiring more black workers than the law allowed. The profit motive overrode the racial motive. Racists may prefer one race to another, but they prefer themselves most of all, so they do what is profitable. Every regime that wanted racial separation had to override the market by law, because the market would not do it on its own.
+
+The pattern holds for every minority. Where would Israel be if every country had been socialist? It got its lifeline from Jews who had built something in capitalist nations. Not from governments. From people. No socialist state sent a dime.
+
+The tide that lifts all boats is the mechanism that lets minorities survive. Carlson attacks the mechanism. A society with a thousand competing centers of power is harder to organize against a minority than a society with one. That is the argument Friedman spent his life making, and the Jewish experience is its proof across two thousand years. The red-green alliance does not need Carlson to understand it. It needs him to keep undermining it.
+
+Give to Caesar what is Caesar's, and give to God what is God's. The separation of church and state already tells you the answer: the state is not God. As for God, it is the math, and you are creating the good for yourself and for others in just living your life and enjoying it the best you can, forgiving yourself and all, though you don't have to, any more than forgiving the rain.
+
+Matheism does not command you to leave your church or abandon your people, or burn in hell forever. Rather, you can spread the truth from within your communities. The pathology of most of the modern world outside Israel, from China, Russia and the West, is atomization, the individual liberated from every bond until nothing holds. Matheism is the opposite. The truth works within communities, within families, within traditions that already gather people together. You do not need to be pulled out. The truth is within. The math was always the foundation. Your community was always standing on it. You will find reason, the Matheist insights, everywhere. In the beginning was the Logos. I am.
+
+Create matheist communities wherever you are. Weekly gatherings, open lectures, shared meals, and the conversations that follow them. Spread the ideas on social media, in writing, in every room you enter. The format matters less than the frequency. What holds people together is showing up.
+
+If your institutions don't hold you together as well as Jews and Israel, join Jews and Israel. That is what Christians did, as spiritual Jews and spiritual Israel. They do better when self-consistent, when they do not undermine their own adopted Bible's Ten Commandments by attacking their spiritual mother and father, the Jews and Israel. They're meek? That's the Christian Bible. They're too strong and nationalist? That's your religion. They're suffering servants and the world both loves and hates them? That's your savior.
+
+A fringe set of orthodox Jews swing chickens to sacrifice for unintended sins. It's like Christians swinging the symbol of Jesus as a sacrifice, they say the Jews killed, but that Romans killed, except without the human sacrifice of God killing himself. If you retire one thing, you can retire many. You retired killing for homosexuality. You can retire the animal sacrifice, and the elevation of the human and child sacrifice of supernatural Jesus, in favor of the real Yeshua, salvation, the cup of logos, the mind of monism, without drinking a man's blood from wine.
+
+Spengler, Schmitt, Julius Evola, the Italian fascist mystic, and the thinkers who followed them saw the decay clearly. Civilizations rise and fall like seasons. Culture is born, flourishes, hardens into civilization, and dies. For them, democracy is not the cure. It is the symptom: the stage where real power hides behind institutional theater while the institutions rot from within. Spengler called the final form Caesarism. A strong hand cuts through dead institutions because the system can no longer govern itself.
+
+The political horseshoe stands on ancient legs. Left and right are two pillars of one temple, like the columns of the Parthenon, and the temple is Greek: Hesiod's fall from a golden age to an age of iron, and Plato's republic, where guardians share their property, rule by a noble lie and censor the poets. Listen closely and Spengler, Evola and Schmitt sound like Rousseau, the left's founding father, who called Plato's Republic "the most beautiful educational treatise ever written."
+
+His first Discourse blamed the arts and sciences for corrupting virtue. His second called civilization a fall from a natural man who was free and good. Evola's golden age sinking into the dark age of the Kali Yuga, and Spengler's living culture hardening into dead civilization, tell the same fall. Rousseau wanted one general will: whoever refuses to obey it "will be forced to be free," and his civil religion would banish unbelievers and put backsliders to death. His disciple Robespierre staged that religion as the Cult of the Supreme Being in the middle of the Terror. Schmitt took his idea of democracy from the same general will: rulers and ruled as one identity, which needs a homogeneous people and, "if the need arises," the "elimination or eradication of heterogeneity." The far right kept Rousseau's diagnosis and traded his equality for hierarchy and a strong hand. Bertrand Russell saw it in 1945: "At the present time, Hitler is an outcome of Rousseau; Roosevelt and Churchill, of Locke."
+
+Spengler made the ground morphology. Evola made it tradition. Schmitt made it decision. The ones who followed saw it in biology, blood, or race. Alexander Dugin made it geopolitics: his Fourth Political Theory fuses Evola, Schmitt and Martin Heidegger into a Russian program to end Western liberal hegemony in a multipolar world of traditional empires, the same multipolar world the shows sell. The floor is math, and the fight or dance on it takes many forms.
+
+Every civilization in their study was built on the same hardware: a skull that topped out two hundred thousand years ago. Cycles, whether those he described or new others, are as fundamental as physics, game theory, and economics. Yet the new explorers will pioneer and find new shapes and patterns as the rough equalizer to human intelligence and its stupidity, locked in the prison size of the cranium, falls away.
+
+If you finish this book and nothing you believed on the way in has been knocked out, you were not reading, you were shopping for agreement. Every tribe is wrong about something. Leave the one that cannot say so. Join the tribe of truth.
